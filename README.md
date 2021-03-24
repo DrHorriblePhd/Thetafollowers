@@ -122,6 +122,8 @@ theta.tv/EpicLivestreams
 theta.tv/Gibrill 
 theta.tv/megadrive1986 
 theta.tv/SmashTR 
-
-
-
+theta.tv/Prasoan 
+theta.tv/ThezMusic 
+theta.tv/DnaCredit
+theta.tv/GICon
+theta.tv/41Digital 
