@@ -140,3 +140,6 @@ theta.tv/321MeinsTV
 theta.tv/KargousSelect
 theta.tv/Gaboru538 
 theta.tv/BaldBomb 
+theta.tv/minecraftSLAYER2009
+theta.tv/oilujzitro99  
+theta.tv/RolyPoly  
