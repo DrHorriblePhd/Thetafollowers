@@ -150,7 +150,9 @@ theta.tv/SeekingI
 theta.tv/magiclegend35 
 theta.tv/bernachour 
 theta.tv/CuPeDIkI
-theta.tv/gilthannas 
+theta.tv/gilthannas
 theta.tv/ChumFlappers
-theta.tv/VenomG 
+theta.tv/VenomG
 theta.tv/TheDistantProgrammer
+theta.tv/y2kgroup
+theta.tv/ReXNeB 
