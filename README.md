@@ -127,3 +127,5 @@ theta.tv/ThezMusic
 theta.tv/DnaCredit
 theta.tv/GICon
 theta.tv/41Digital 
+theta.tv/Mazak1 
+theta.tv/WildRiftGaming
