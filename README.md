@@ -143,3 +143,4 @@ theta.tv/BaldBomb
 theta.tv/minecraftSLAYER2009
 theta.tv/oilujzitro99  
 theta.tv/RolyPoly  
+theta.tv/denissolano
