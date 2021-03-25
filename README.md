@@ -136,4 +136,6 @@ theta.tv/QWNTCMTCS
 theta.tv/xxMokifxx  
 theta.tv/McSupraQc  
 theta.tv/diastech  
-321MeinsTV  
+theta.tv/321MeinsTV  
+theta.tv/KargousSelect
+theta.tv/Gaboru538 
