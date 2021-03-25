@@ -148,3 +148,5 @@ theta.tv/stephan5656
 theta.tv/drownie
 theta.tv/SeekingI
 theta.tv/magiclegend35 
+theta.tv/bernachour 
+theta.tv/CuPeDIkI
