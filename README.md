@@ -131,3 +131,9 @@ theta.tv/Mazak1
 theta.tv/WildRiftGaming
 theta.tv/scracer14 
 theta.tv/Iwassaki20 
+theta.tv/Denver809  
+theta.tv/QWNTCMTCS 
+theta.tv/xxMokifxx  
+theta.tv/McSupraQc  
+theta.tv/diastech  
+321MeinsTV  
