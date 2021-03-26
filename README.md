@@ -1,4 +1,5 @@
 # Thetafollowers
+theta.tv/drownie
 theta.tv/flightsimbrasil 
 theta.tv/GrandadsNads 
 theta.tv/Ldmitry2612 
@@ -144,7 +145,6 @@ theta.tv/oilujzitro99
 theta.tv/RolyPoly
 theta.tv/denissolano
 theta.tv/stephan5656
-theta.tv/drownie
 theta.tv/SeekingI
 theta.tv/magiclegend35 
 theta.tv/bernachour 
