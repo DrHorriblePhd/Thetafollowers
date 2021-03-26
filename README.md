@@ -1,5 +1,14 @@
 # Thetafollowers
 theta.tv/drownie
+theta.tv/UnknownTV
+theta.tv/bonesdog
+theta.tv/S8N02000  
+theta.tv/Raxaa 
+theta.tv/SnaggyBandido 
+theta.tv/Dragonehq 
+theta.tv/AledR123 
+theta.tv/Zabi 
+theta.tv/Brainfood4You 
 theta.tv/pammaq 
 theta.tv/CATOINMOTION 
 theta.tv/cxace 
