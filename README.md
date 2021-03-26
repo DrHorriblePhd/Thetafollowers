@@ -1,5 +1,4 @@
 # Thetafollowers
-theta.tv/TheBeardedSaiyan 
 theta.tv/flightsimbrasil 
 theta.tv/GrandadsNads 
 theta.tv/Ldmitry2612 
