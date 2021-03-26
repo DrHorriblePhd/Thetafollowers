@@ -1,5 +1,6 @@
 # Thetafollowers
 theta.tv/drownie
+theta.tv/cxace 
 theta.tv/flightsimbrasil 
 theta.tv/GrandadsNads 
 theta.tv/Ldmitry2612 
