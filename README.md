@@ -1,5 +1,6 @@
 # Thetafollowers
 theta.tv/drownie
+theta.tv/fabiopais
 theta.tv/Theta100x
 theta.tv/Nekley 
 theta.tv/UnknownTV
