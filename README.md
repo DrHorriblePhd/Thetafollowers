@@ -1,5 +1,6 @@
 # Thetafollowers
 theta.tv/drownie
+theta.tv/NyQ 
 theta.tv/ismaelsillem 
 theta.tv/imeil7
 theta.tv/fabiopais
