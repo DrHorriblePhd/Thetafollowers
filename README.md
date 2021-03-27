@@ -1,5 +1,8 @@
 # Thetafollowers
 theta.tv/drownie
+theta.tv/trep1 
+theta.tv/BeardedLegoMan 
+theta.tv/jeantalan 
 theta.tv/NyQ 
 theta.tv/ismaelsillem 
 theta.tv/imeil7
