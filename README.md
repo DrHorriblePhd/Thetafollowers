@@ -1,5 +1,9 @@
 # Thetafollowers
 theta.tv/drownie
+theta.tv/Michowa
+theta.tv/Gsmoker
+theta.tv/MartiniBR
+theta.tv/sideflip
 theta.tv/KryptoLover
 theta.tv/HerpTheDerp
 theta.tv/PatrickKING
