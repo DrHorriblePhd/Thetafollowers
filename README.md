@@ -1,5 +1,7 @@
 # Thetafollowers
 theta.tv/drownie
+theta.tv/Cthulhu666999 
+theta.tv/BitterLemon 
 theta.tv/Jefferz 
 theta.tv/Thtscotsguy 
 theta.tv/StarBrother 
