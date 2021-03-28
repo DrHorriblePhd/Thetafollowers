@@ -1,5 +1,7 @@
 # Thetafollowers
 theta.tv/drownie
+theta.tv/HerpTheDerp
+theta.tv/PatrickKING
 theta.tv/59fpsyt 
 theta.tv/Larsini 
 theta.tv/arenigac
