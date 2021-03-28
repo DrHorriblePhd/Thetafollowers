@@ -1,5 +1,7 @@
 # Thetafollowers
 theta.tv/drownie
+theta.tv/Larsini 
+theta.tv/arenigac
 theta.tv/Flyfisho 
 theta.tv/Cthulhu666999 
 theta.tv/BitterLemon 
