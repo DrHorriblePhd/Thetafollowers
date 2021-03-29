@@ -1,5 +1,6 @@
 # Thetafollowers
 theta.tv/drownie
+theta.tv/ERMGGJ 
 theta.tv/VinnieTwoTimes 
 theta.tv/streammaster
 theta.tv/Aletheia 
