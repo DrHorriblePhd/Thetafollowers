@@ -1,5 +1,11 @@
 # Thetafollowers
 theta.tv/drownie
+theta.tv/streammaster
+theta.tv/Aletheia 
+theta.tv/merloproductions 
+theta.tv/staaan 
+theta.tv/L2TechSup 
+theta.tv/Supercrab 
 theta.tv/Michowa
 theta.tv/Gsmoker
 theta.tv/MartiniBR
