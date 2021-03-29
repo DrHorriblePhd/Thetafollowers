@@ -1,6 +1,9 @@
 # Thetafollowers
 theta.tv/drownie
-theta.tv/willowduster 
+theta.tv/mazenmr 
+theta.tv/wVTTVw 
+theta.tv/bgra01 
+theta.tv/jhon981126 
 theta.tv/willowduster 
 theta.tv/predatord 
 theta.tv/ioanianosiga 
