@@ -1,5 +1,12 @@
 # Thetafollowers
 theta.tv/drownie
+theta.tv/willowduster 
+theta.tv/willowduster 
+theta.tv/predatord 
+theta.tv/ioanianosiga 
+theta.tv/hadariagamer 
+theta.tv/SuperSaj94 
+theta.tv/5uspek7 
 theta.tv/ERMGGJ 
 theta.tv/VinnieTwoTimes 
 theta.tv/streammaster
