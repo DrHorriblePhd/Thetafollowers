@@ -1,5 +1,7 @@
 # Thetafollowers
 theta.tv/drownie
+theta.tv/topTV 
+theta.tv/omadryan
 theta.tv/zekraken 
 theta.tv/mazenmr 
 theta.tv/wVTTVw 
