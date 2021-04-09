@@ -1,5 +1,6 @@
 # Thetafollowers
 theta.tv/drownie
+theta.tv/eiwo 
 theta.tv/shzzz 
 theta.tv/slarnekk 
 theta.tv/asc164 
@@ -171,7 +172,6 @@ theta.tv/yampuga
 theta.tv/penguinunix 
 theta.tv/SektorTV 
 theta.tv/Jepidemic
-theta.tv/eiwo 
 theta.tv/Senpronio 
 theta.tv/PhusionPhil 
 theta.tv/LeafyLove 
