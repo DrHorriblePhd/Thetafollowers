@@ -1,5 +1,12 @@
 # Thetafollowers
 theta.tv/drownie
+theta.tv/shzzz 
+theta.tv/slarnekk 
+theta.tv/asc164 
+theta.tv/LindsayDe14 
+theta.tv/H0o
+theta.tv/sam4partner 
+theta.tv/shzzz 
 theta.tv/topTV 
 theta.tv/omadryan
 theta.tv/zekraken 
