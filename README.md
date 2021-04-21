@@ -220,7 +220,7 @@ theta.tv/TREEIndustries
 theta.tv/zoycite
 theta.tv/cajones 
 
-
+People (currently) without channels
 theta.tv/shzzz 
 theta.tv/slarnekk
 theta.tv/asc164
