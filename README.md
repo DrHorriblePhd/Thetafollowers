@@ -1,18 +1,13 @@
 # Thetafollowers
 theta.tv/drownie
 theta.tv/eiwo 
-theta.tv/shzzz 
-theta.tv/slarnekk 
-theta.tv/asc164 
-theta.tv/LindsayDe14 
 theta.tv/H0o
-theta.tv/sam4partner 
-theta.tv/shzzz 
+theta.tv/sam4partner
+theta.tv/LindsayDe14 
 theta.tv/topTV 
 theta.tv/omadryan
 theta.tv/zekraken 
 theta.tv/mazenmr 
-theta.tv/wVTTVw 
 theta.tv/bgra01 
 theta.tv/jhon981126 
 theta.tv/willowduster 
@@ -224,3 +219,9 @@ theta.tv/westonnelson
 theta.tv/TREEIndustries
 theta.tv/zoycite
 theta.tv/cajones 
+
+
+theta.tv/shzzz 
+theta.tv/slarnekk
+theta.tv/asc164
+theta.tv/wVTTVw
